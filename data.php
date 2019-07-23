@@ -12,10 +12,10 @@
 ###########################################
 #Jangan Lupa Subscribe Channel Youtube    #
 #Admin dan aktifkan notifikasi lonceng nya#
-#karena subscribe itu gratis gak bayar👇👇#
+#karena subscribe itu gratis gak bayar    #
 ###########################################
-https://www.youtube.com/channel/UClb7JaAMtvIrBtRsFEbFZmg
-###########################################
+https://www.youtube.com/channel/UCMNedYnhv9uNPvM0wHVABsw
+##########################################
 
 
 
